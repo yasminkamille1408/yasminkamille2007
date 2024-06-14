@@ -9,4 +9,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meus projet
 ## VOCÊ pode entrar em contato comigo
 0000118574270SP@aluno.educacao.sp.gov.br 📧
 
-![](https://media1.tenor.com/m/LC2Jp87SCwQAAAAd/little-girl-cute.gif
+![](https://media1.tenor.com/m/LC2Jp87SCwQAAAAd/little-girl-cute.gif)
